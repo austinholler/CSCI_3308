@@ -1,1 +1,1 @@
-This is a rfefefregnklerdsnlead me!! PARTNER:Rich Blanchard
+This is a rfefefregnklerdsnlead me!! PARNER:Rich Blanchard
